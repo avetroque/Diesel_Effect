@@ -1,0 +1,1 @@
+To check the effect of the removal of diesel subsidy on the prices of raw goods.
